@@ -1,1 +1,1 @@
-# iphone.github.uz
+# iphone.github.io
